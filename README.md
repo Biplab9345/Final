@@ -19,3 +19,9 @@
 ![pexels-reneterp-3990371](https://github.com/user-attachments/assets/75fc42ec-c12d-4189-915e-478734cb1634)
 ![pexels-vlad-r14-1445510816-26800729](https://github.com/user-attachments/assets/29721ac6-015e-4c83-93f9-0b1f8c3ad314)
 ![Untitled design](https://github.com/user-attachments/assets/0ceafc6c-1665-454c-afde-b57ee33cbdd5)
+
+![5098196](https://github.com/user-attachments/assets/ff60fd4b-fba4-4496-addb-1a704d52e5fd)
+![WhatsApp Image 2024-08-18 at 13 18 17_4e0867f2](https://github.com/user-attachments/assets/d588f62c-c516-460a-9991-575655526ea4)
+![—Pngtree—technology visualization futuristic blue banner_1858051](https://github.com/user-attachments/assets/48731fc9-dd65-44af-9573-d8cb04cdfe19)
+![snowy-mountain-peak-starry-galaxy-majesty-generative-ai](https://github.com/user-attachments/assets/1e5630e9-529b-4e3c-8e62-32139ec57978)
+
